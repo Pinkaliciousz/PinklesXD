@@ -22,4 +22,10 @@ my humor is all over the place, so if I make you uncomfortable with anything I s
 
 urghhh... idkk I'm kinda new at this🧍🏾
 
+oh heh yeha here's my discord: Glittery.emo.
+
+andd my insta: https://www.instagram.com/pretty_pinkalicious/profilecard/?igsh=Zm13OWowdTR4OXRj
+
+giggles
+
 I wanna add cute blinkies but ion kno if I can do that on phone gang.. 😓😓 pls give me tips if you have any
