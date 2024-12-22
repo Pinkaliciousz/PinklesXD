@@ -14,6 +14,8 @@ I love animals! I'm a dog person overall tho >_&
 
 I love anime, video games, cartoons, and true crime😈 kinda basic stuff.. ikik... (I play pt btw bmf pls🙏🏾)
 
+☆PTV addict btw☆
+
 forgot to mention but I'm Pansexual and.. might? be genderfluid..? eek.
 
 OH yeah, i keep forgetting things.. I'm approachable! don't be shy or afraid to talk or sit with me! sometimes I may not be in the mood for talking but a little company is always appreciated <3
