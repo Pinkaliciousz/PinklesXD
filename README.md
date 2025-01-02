@@ -12,6 +12,8 @@ obviously I love anything pink and glittery
 
 I love animals! I'm a dog person overall tho >_&
 
+I'm a kemonomimi!! gigglez:3
+
 I love anime, video games, cartoons, and true crime😈 kinda basic stuff.. ikik... (I play pt btw bmf pls🙏🏾)
 
 ☆PTV addict btw☆
